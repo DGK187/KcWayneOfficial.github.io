@@ -16,4 +16,3 @@ good decision in career paths and i
 chose the full stack development to
 help me further my business of fadedmonkeyfilms
 #### Photo Examples
-FB_IMG_1731971575095.jpg
