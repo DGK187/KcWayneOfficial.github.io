@@ -1,8 +1,5 @@
 # Social Media Accounts
-https://www.linkedin.com/in/casey-deason-221246317?
-utm_source=share&utm_campaign=share,
-via&utm_content=profile&utm_medium=a
-ndroid_app
+https://www.linkedin.com/in/casey-deason-221246317?utm_source=share&utm_campaign=share,via&utm_content=profile&utm_medium=android_app
 https://github.com/DGK187
 https://youtube.com/@fadedmonkeyfilm
 s419?si=40nYh4rDlMfBL86D
