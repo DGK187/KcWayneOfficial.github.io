@@ -1,6 +1,5 @@
 # Social Media Accounts
-https://www.linkedin.com/in/casey-
-deason-221246317?
+https://www.linkedin.com/in/casey-deason-221246317?
 utm_source=share&utm_campaign=share,
 via&utm_content=profile&utm_medium=a
 ndroid_app
