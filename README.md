@@ -22,4 +22,4 @@ help me further my business of fadedmonkeyfilms
 
 ![Screenshot_20241118_181827_YouTube.jpg](https://github.com/user-attachments/assets/aafc3d46-f237-4423-8a17-8cb9cf8f50c5)
 
-![20210403_154034.jpg](https://github.com/user-attachments/assets/a140ea36-1487-4e31-a17b-06c0eb9b9694
+![20210403_154034.jpg].(https://github.com/user-attachments/assets/a140ea36-1487-4e31-a17b-06c0eb9b9694
